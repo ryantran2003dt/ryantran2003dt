@@ -32,8 +32,8 @@
 
 ## 📫 Contact
 
-- 📧 Email: your.email@example.com  
-- 💼 LinkedIn: [linkedin.com/in/yourname](https://linkedin.com/in/yourname)
+- 📧 Email: ryantran2003dt@gmail.com  
+- 💼 LinkedIn: [linkedin.com/in/ryantran2003dt](www.linkedin.com/in/ryan-tran-3ba843304)
 
 ---
 
